@@ -56,7 +56,7 @@ I am continuously learning and improving my skills with a strong focus on **prac
 ## 📫 Connect With Me
 
 * GitHub: [https://github.com/jeevas9562](https://github.com/jeevas9562)
-* LinkedIn: *(add your LinkedIn profile link)*
+* LinkedIn: *([add your LinkedIn profile link](https://www.linkedin.com/in/jeeva-s-9148b1286))*
 
 ---
 
